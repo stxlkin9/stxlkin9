@@ -1,4 +1,6 @@
-## Hi there 👋
+## hihihiii plz int and c+h unless im w a friend ^_^ i swear im friendly❤️❤️❤️❤️
+![Uploading 1000018065.jpg…]()
+
 
 <!--
 **stxlkin9/stxlkin9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
