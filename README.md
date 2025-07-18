@@ -1,5 +1,7 @@
 ## hihihiii plz int and c+h unless im w a friend ^_^ i swear im friendly❤️❤️❤️❤️
-![Uploading 1000018065.jpg…]()
+
+![1000018065](https://github.com/user-attachments/assets/0a52b0ad-0ed0-48b1-8e2a-cd7776917685)
+
 
 
 <!--
